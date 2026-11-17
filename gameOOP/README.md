@@ -1,6 +1,6 @@
 ## Identitas Developer
 
-Nama : Krisna Valencia Hidayat | NIM : 14012500046 | Kelas : 3A-KOM
+Nama : Rizaldi Sa'ad | NIM : 14012500065 | Kelas : 3A-KOM
 
 ---
 
